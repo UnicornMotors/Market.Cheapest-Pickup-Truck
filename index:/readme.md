@@ -2,3 +2,4 @@
 - [1998 Chevrolet s10 extended cab Pickup $1,000 Listed 4 hours ago in Huntsville, AR](https://www.facebook.com/marketplace/item/1067356858840770)
 - Wrecked - Bent Frame [2002 Chevrolet s10 regular cab LS Pickup 2D 6 ft $800 Listed 11 weeks ago in Gulfport, MS](https://www.facebook.com/marketplace/item/1710044549625740)
 - [1998 Chevrolet 1500 regular cab Long Bed $900 Listed 8 weeks ago in Perryville, AR](https://www.facebook.com/marketplace/item/2134913823646435)
+- [Chevy truck $800$2,000 Listed 41 weeks ago in Panama City, FL](https://www.facebook.com/marketplace/item/1072774281108268)
