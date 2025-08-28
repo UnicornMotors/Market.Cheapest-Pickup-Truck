@@ -1,0 +1,1 @@
+- [Ford half ton truck $600 Listed 3 days ago in Clanton, AL](https://www.facebook.com/marketplace/item/4044195145841303)
